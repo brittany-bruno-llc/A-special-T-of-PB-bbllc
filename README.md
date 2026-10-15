@@ -1,4 +1,4 @@
-# A Specialty Of PB Website
+# A Special T Of Palm Beach, Inc. Website
 
 Proprietary website build for **A Special T Of Palm Beach, Inc.**, owned by 
 **Brittany Bruno, LLC** for custom promotional products, branded apparel, print
